@@ -1,2 +1,2 @@
 # LadytoLovee
-Hal Terberat Dlm Hobby Itu Ketika Suatu Motivasi Menjadi Privasi (ಥ_ಥ)
+Hal Terberat Dlm Hobby Itu Ketika Suatu Motivasi Menjadi Verifasi (ಥ_ಥ)
